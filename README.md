@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @stigur
+- 👀 I’m interested in mental health apps
+- 🌱 I’m currently learning devops
+- 💞️ I’m looking to collaborate on a lot of things
+- 📫 How to reach me stigur@stigur.com
